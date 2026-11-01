@@ -1,4 +1,4 @@
-LANCE CORPORAL AKANBONSAH EDWARD 6BN
+## AKANBONSAH EDWARD 6BN
 ## About Me
 Akanbonsah Edward is my name i was born on the June 24,2002.
 I was born at Effidusi in the Asante Region. 
